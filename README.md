@@ -1,5 +1,5 @@
-# Parsher Youtube Kanalıma Abone Olmayı Unutma
+# Umutluu Twitch Kanalıma takip etmeyi unutma
 ////////////////////////////////////////////////////////////////////////////////////////////////////////////////////
-# [Youtube Kanalım](https://www.youtube.com/channel/UCKpRtKCWoZMNeiIRviOtd1w)  |  [Discord Adresim](https://discord.gg/FATqHBJ97W)
+# [[Twitch Kanalım](https://www.twitch.tv/umutluu)]  |  [[Discord Adresim](https://discord.gg/JqXngnAN2u)]
 ////////////////////////////////////////////////////////////////////////////////////////////////////////////////////
-# 🤖 İzinsiz Video Çekmiyin.
+# 🤖 Botun kullanım hakkı tamamen Umutluu'ya aittir
